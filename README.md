@@ -9,3 +9,11 @@
 - 👯 I’m looking to collaborate with other developers.
 - 🥅 2021 Goals: Upgrade my computer and get new interior of my room.
 - ⚡ Fun fact: I love to play game FiveM.
+
+### Connect with me:
+
+[<img align="left" alt="dipscode | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][https://www.youtube.com/channel/UCkxGY0mt9JgqCbNE5G607_g]
+[<img align="left" alt="framexfosho | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" />][https://www.instagram.com/framexfosho/]
+[<img align="left" alt="framexfosho | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/facebook.svg" />][https://www.facebook.com/framexfosho/]
+
+<br />
