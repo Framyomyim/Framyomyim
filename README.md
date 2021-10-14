@@ -8,4 +8,4 @@
 - 🌱 Nickname : **Frame**
 - 👯 I’m looking to collaborate with other developers.
 - 🥅 2021 Goals: Upgrade my computer and get new interior of my room.
-- ⚡ Fun fact: I love to game FiveM.
+- ⚡ Fun fact: I love to play game FiveM.
